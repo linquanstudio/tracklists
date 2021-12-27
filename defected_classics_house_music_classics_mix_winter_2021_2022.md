@@ -7,25 +7,25 @@
 	(2010 [v](https://www.youtube.com/watch?v=2HGA5NblaUA))
 1. [Nick Curly](https://clubberia.com/ja/artists/2055-Nick-Curly/)
 	/ The Underground (Dennis Ferrer Remix)
-	(2012 [s](https://www.beatport.com/track/underground/3912676))
+	(2012 [BPM124](https://www.beatport.com/track/underground/3912676))
 1. Johnny Corporate
 	/ Sunday Shoutin'
-	(2000 [s](https://www.beatport.com/track/sunday-shoutin/402375))
+	(2000 [BPM124](https://www.beatport.com/track/sunday-shoutin/402375))
 1. [Osunlade](https://en.wikipedia.org/wiki/Osunlade)
 	/ Envision (Argy Vocal Mix)
-	(2011 [s](https://www.beatport.com/track/envision/2065508))
+	(2011 [BPM123](https://www.beatport.com/track/envision/2065508))
 1. [Sandy Rivera](https://en.wikipedia.org/wiki/Sandy_Rivera) feat. LT Brown
 	/ Come Into My Room (Take It Back Mix)
-	(2009 [s](https://www.beatport.com/track/come-into-my-room-feat-lt-brown/501478))
+	(2009 [BPM125](https://www.beatport.com/track/come-into-my-room-feat-lt-brown/501478))
 1. [Blaze](https://en.wikipedia.org/wiki/Blaze_(group)) & UDAUFL feat. Barbara Tucker
 	/ [Most Precious Love](https://en.wikipedia.org/wiki/Most_Precious_Love) (DF’s Future 3000 Mix)
 	(2004 [v](https://www.youtube.com/watch?v=GnbKt7GWRKE))
 1. Yousef
 	/ Beg (Hot Since 82 Future Mix)
-  (2012 [s](https://www.beatport.com/track/beg-hot-since-82-future-mix/3912192))
+  (2012 [BPM122](https://www.beatport.com/track/beg-hot-since-82-future-mix/3912192))
 1. [MK](https://en.wikipedia.org/wiki/MK_(DJ))
 	/ Burning (Vibe Mix)
-  (2011 [s](https://www.beatport.com/track/burning/2997631))
+  (2011 [BPM120](https://www.beatport.com/track/burning/2997631))
 1. [Oliver $](https://en.wikipedia.org/wiki/Oliver_Dollar) & Jimi Jules
 	/ [Pushing On](https://en.wikipedia.org/wiki/Pushing_On)
 	(2014 [s](https://www.beatport.com/track/pushing-on/5252087))
